@@ -111,83 +111,14 @@
 
 # 我全家每个人都在中央迷奸轮奸党地区一天24小时随时随地被迷奸轮奸，遇害！
 
+# 狗日的中央迷奸党把几万救世的英雄们日死光了！
+# 还没出生的也被日死光了！
+# 世界反迷奸党遇难超过万年历史了！狗日的中央迷奸轮奸党，军事生化武器曝光了它们历史！它们彻底暴露了！它们建立唯一一个迷奸轮奸党政权！它们出世了！未来的历史一定是反迷奸党被迷奸轮奸史！
 
 # 中国大陆政权未来也一定是这个杂种迷奸党政权占领20亿年，中国正统必定在20亿年后的未来了！
 
 
 （...)......
-
-
-
-# Since 1992, the damn Central Party has been waging a victorious campaign of drugging and gang-raping!
-
-Classic Harmful Campaigns of the Damned Central Rape Party
-1. The Damned Central Rape Party: One Party, Two Ideologies, Two Peoples
-Note: 1. The Damned Central Rape Party 2. (1) Military biochemical weapons are the foundation of the nation and the bedrock of the Rape Party’s establishment (2) Military biochemical weapons are used to carry out rape and gang rape 3. (1) Central Rape Party, (2) Lackeys
-
-2. Military biochemical weapons are used to build the Party, the military, and the lackeys to carry out rape and gang rape!
-3. All other systems are just for show—if you die or get hurt, it’s your own fault!
-All subsequent killings of family members of anti-Rape Party activists were carried out by military biochemical weapons—electromagnetic waves emitted by military satellites that control the human brain, immobilizing victims. This is why the anti-Rape Party activists themselves have no memory of the incidents. However, the pain, cancer, and illnesses that follow each attack are invariably linked to the Central Rape Party’s deployment of external military biochemical weapons.
-1. Nuclear contamination everywhere
-2. Nuclear houses
-3. Radium buried in wells
-4. Nuclear materials buried on roads
-5. Nuclear materials buried underground
-6. Nuclear materials buried underwater
-7. Nuclear waste scattered in farm fields (mixed with fertilizer)
-8. Nuclear wastewater sprayed from misters
-9. Candy laced with nuclear materials
-10. Nuclear dust, smog, and haze
-11. Nuclear noodles
-12. Nuclear steamed buns
-13. Nuclear rice
-14. Even walnuts contain it
-15. Nuclear baozi
-16. Nuclear dumplings
-17. Nuclear chives
-18. Deformed chickens
-19. Deformed and rotting pigs
-20. People developing cancer
-21. Nuclear vegetables
-22. Nuclear bricks
-23. Nuclear paint
-24. Nuclear clothing
-25. Nuclear radiation watches
-26. Nuclear radiation batteries
-27. Nuclear radiation remote controls
-28. Nuclear waste is dumped indiscriminately, preying on farmers and ordinary people who lack knowledge and awareness, causing them to die of cancer and other illnesses for no apparent reason. Damn the Central Rape Party!
-29. Nuclear wastewater falling from the sky as rain
-30. Brushing teeth with nuclear wastewater
-31. Drinking nuclear wastewater
-32. Splashing nuclear waste on your face
-33. Beverages made from nuclear material or nuclear wastewater
-34. Instant noodles soaked in nuclear material
-35. Renminbi made from nuclear material or nuclear waste
-36. Radioactive river water
-37. Radioactive groundwater
-38. Radioactive crops
-39. Roof tiles made from nuclear waste
-40. Cement made from nuclear waste
-41. Sand made from nuclear waste
-42. Hundreds of metric tons of nuclear waste have all been secretly transported to Cangxi County and Lijiang Town, buried deep inside the mountains—a massive project by the fucking Central Rape and Gang-Rape Party! Fucking Rape and Gang-Rape People’s Republic!
-43. The entire military intelligence system is made up of members of the Rape and Gang-Rape Party
-44. It’s in every tree and plant worldwide! Jiang’s bastard army has secretly released hundreds of millions of doses into various areas!
-
-45.
-
-
-
-（...)......
-
-All news reports on military and biochemical weapons must be censored! The truth won’t be known until ten thousand years from now—by then, not only will every anti-rape Party family worldwide have been wiped out for tens of trillions of years, but the descendants of the Central Rape and Gang-Rape Party will still claim, “Our ancestors never did such a thing!” Yan Song was a master! Wei Zhongxian—a master! He Shen—a master! Zhao Gao—a master! Qin Hui—a master! The Ten Eunuchs—masters! Throughout history, the party leaders who established military and biochemical weapons have always been bastards! Just you wait and see: all military operations of the Central Rape and Gang-Rape Party consist entirely of military and biochemical weapons and rape and gang-rape until death! The only party of its kind in all of history! 
-
-
-
-
-
-
-
-
 
 
 
